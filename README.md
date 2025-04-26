@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @yungsmd
 - 👀 I’m interested in ...tech
-- 🌱 I’m currently learning ...jkuat
+- 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ... technology 
-- 📫 How to reach me ...0768665454
+- 📫 How to reach me .
 - 😄 Pronouns: ...him
 - ⚡ Fun fact: ...fuck you 
 
